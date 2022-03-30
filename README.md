@@ -1,1 +1,1 @@
-This is my personal pages.
+This is my personal webpages.
